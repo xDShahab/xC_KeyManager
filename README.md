@@ -6,6 +6,6 @@
 
 # Web
 
-- https://xcoore.ir/ 🌐
+- https://shahabsanei.ir/ 🌐
 
-# `Shahab#0128 💙
+# Discord : `shahabxd` 💙
