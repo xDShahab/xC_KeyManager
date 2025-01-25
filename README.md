@@ -2,7 +2,7 @@
 
 # Discord
 
-- https://discord.gg/xcoore 🌐
+- https://discord.gg/Uwt4rudXMu 🌐
 
 # Web
 
